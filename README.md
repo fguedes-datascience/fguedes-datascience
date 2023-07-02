@@ -7,7 +7,7 @@
 
 - 📫 Você me acha através do e -mail **felipeguedes123.adm@gmail.com**
 
-- 📄 Para saber mais sobre minhas reservas: [www.linkedin.com/in/joao-felipe-de-oliveira-guedes-7385b4230](www.linkedin.com/ in/ joao-felipe-de-oliveira-guedes-7385b4230)
+- 📄 Para saber mais sobre mim: www.linkedin.com/in/joao-felipe-de-oliveira-guedes-7385b4230
 
 <h3 align="left">Conecte-se comigo:</h3>
 <p align="left">
